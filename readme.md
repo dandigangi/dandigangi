@@ -6,6 +6,7 @@
 **Location**: Chicago
 
 I'm passionate about building diverse, high performance teams.
+<em>Build experiences, not software.</em>
 
 
 [Website dandigangi.com](https://dandigangi.com)&nbsp;&nbsp;|&nbsp;&nbsp;[LinkedIn @dandigangi](https://linkedin.com/in/dandigangi)&nbsp;&nbsp;|&nbsp;&nbsp;[Twitter @dandigangi](https://twitter.com/dandigangi)
