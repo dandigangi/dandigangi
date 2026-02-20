@@ -8,4 +8,4 @@
 I'm passionate about building diverse, high performance teams.
 
 
-[Website dandigangi.com](https://dandigangi.com) | [LinkedIn @dandigangi](https://linkedin.com/in/dandigangi) | [Twitter @dandigangi](https://twitter.com/dandigangi)
+[Website dandigangi.com](https://dandigangi.com)&nbsp;&nbsp;|&nbsp;&nbsp;[LinkedIn @dandigangi](https://linkedin.com/in/dandigangi)&nbsp;&nbsp;|&nbsp;&nbsp;[Twitter @dandigangi](https://twitter.com/dandigangi)
