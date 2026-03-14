@@ -1,7 +1,7 @@
 ## Hello! I'm Dan DiGangi.
 ### It's nice to meet you.
 
-**Current**: Postmark Engineering Manager (ActiveCampaign - Chicago)
+**Current**: Postmark Senior Engineering Manager
 
 I'm passionate about building diverse, high performance teams.
 
