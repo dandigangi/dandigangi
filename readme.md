@@ -1,7 +1,7 @@
 ## Hello! I'm Dan DiGangi.
 ### It's nice to meet you.
 
-**Current**: Postmark Senior Engineering Manager
+**Current**: Looking for a new engineering manager or director role!
 
 I'm passionate about building diverse, high performance teams.
 
